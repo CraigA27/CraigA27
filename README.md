@@ -1,4 +1,4 @@
-### Hi there 👋
+### Creative and collaborative individual who wants to develop new and innovative technology!  :computer:
 
 <!--
 **CraigA27/CraigA27** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
